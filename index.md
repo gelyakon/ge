@@ -1,3 +1,3 @@
-# Gelya Kon | Artist perfomance 
+# Gelya Kon | Artist Perfomance 
 
 I'm glad you are here. I plan to talk about ...
