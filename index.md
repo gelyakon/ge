@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Gelya Kon | Artist perfomance 
 
 I'm glad you are here. I plan to talk about ...
